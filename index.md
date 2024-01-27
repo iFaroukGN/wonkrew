@@ -30,7 +30,7 @@ Birthplace - Lyon, France
 ### Contact us
 Email : Farouk con Wonkrew at [farouk@wonkrew.fr](mailto:farouk@wonkrew.fr)
 
-Address : Avenue Generel de gaulle 69500, Bron
+Address : Avenue General de gaulle 69500, Bron
 
 
 WONKREW, All Rights Reserved ©2023.
